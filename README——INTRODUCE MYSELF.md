@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HarveychZhang.
-- 👀 I’m interested in Olypic Math, Electronic Engineering, Rocket.
+- 👀 I’m interested in Olympic Math, Electronic Engineering, Rocket.
 - 🌱 I’m currently learning Math, Python...
 - 💞️ I’m looking to collaborate on ... (I'm fine, as long as you want to work with me).
 - 📫 How to reach me ... 33580114@qq.com(My email).
